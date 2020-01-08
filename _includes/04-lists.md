@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Comer
+2. Ver
+3. Sentir
